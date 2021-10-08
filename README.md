@@ -2,5 +2,4 @@
 
 Some Glimpse: (More on way!)
 
-
-![Untitled design (1)](https://user-images.githubusercontent.com/31695520/136522889-2afbc3bf-5a9b-4b77-b404-3406e0046200.png)
+![Untitled design (2)](https://user-images.githubusercontent.com/31695520/136523431-4240f409-cc43-4427-b59d-3a0610155499.png)
